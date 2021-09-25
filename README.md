@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @DevJourneySilviu
+- 👨🏻‍💻 [DeveloperJourney.it](https://developerjourney.it)
